@@ -99,7 +99,7 @@ Verkefni sett fyrir mánudaginn 31. október 2021.
 
 ## Skil
 
-Skila skal í Canvas, seinasta lagi fyrir lok dags þriðjudaginn 8. nóvember 2022.
+Skila skal í Canvas, seinasta lagi fyrir lok dags fimmtudaginn 10. nóvember 2022.
 
 Skilaboð skulu innihalda:
 
